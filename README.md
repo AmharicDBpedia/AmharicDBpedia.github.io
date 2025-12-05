@@ -1,0 +1,1 @@
+Amharic DBpedia Home Page
